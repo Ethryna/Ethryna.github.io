@@ -1,1 +1,1 @@
-# lycEthrynatpu.github.10
+# Ethryna.github.10
